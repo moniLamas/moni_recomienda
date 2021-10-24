@@ -6,8 +6,11 @@ Yo quiero recopilar, para mi, todos los servicios, productos, lugares de todo ti
 Quiero recopilar en un solo lugar todas esas cositas que he ido acumulando en diversas notas, mensajes guardados, etc cuentas que sigo que para mi son muy relevantes y son referentes en su profesión y divulgan que es un primor.
 Principalmente es para mi y lo incluiré como extra en mi porfolio. Además lo utilizaré para crear contenido para mis cuentas de Twitter e Instagram.
 
-1.- [Primer #MoniRecomienda en Twitter](https://twitter.com/MoniMonipeny/status/1449979704581185536?s=20)
-
+- [Primer #MoniRecomienda en Twitter](https://twitter.com/MoniMonipeny/status/1449979704581185536?s=20)
+- [#MoniRecomienda NavisCode y Midudev](https://twitter.com/MoniMonipeny/status/1449671235651125249)
+- [#MoniRecomienda Orbita laika](https://twitter.com/MoniMonipeny/status/1449979704581185536)
+- [#MoniRecomienda salir a la calle](https://twitter.com/MoniMonipeny/status/1450695410314530817)
+- [#MoniRecomienda Risas al punto sal](https://twitter.com/MoniMonipeny/status/1451435290539831298)
 
 
 
