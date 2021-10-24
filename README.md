@@ -7,3 +7,8 @@ Quiero recopilar en un solo lugar todas esas cositas que he ido acumulando en di
 Principalmente es para mi y lo incluiré como extra en mi porfolio. Además lo utilizaré para crear contenido para mis cuentas de Twitter e Instagram.
 
 1.- [Primer #MoniRecomienda en Twitter](https://twitter.com/MoniMonipeny/status/1449979704581185536?s=20)
+
+
+
+
+[Mención del proyecto en LinkedIn](https://www.linkedin.com/posts/m%C3%B3nica-lamas_monirecomienda-sideproject-nuevoproyecto-activity-6858004842456064000-Egrk)
