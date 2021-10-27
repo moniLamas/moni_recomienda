@@ -11,6 +11,9 @@ Principalmente es para mi y lo incluiré como extra en mi porfolio. Además lo u
 - [#MoniRecomienda Orbita laika](https://twitter.com/MoniMonipeny/status/1449979704581185536)
 - [#MoniRecomienda salir a la calle](https://twitter.com/MoniMonipeny/status/1450695410314530817)
 - [#MoniRecomienda Risas al punto sal](https://twitter.com/MoniMonipeny/status/1451435290539831298)
+- [#MoniRecomienda Isabel Moreno](https://twitter.com/MoniMonipeny/status/1452646359530680325)
+- [#MoniRecomienda SuperKarmen](https://twitter.com/MoniMonipeny/status/1452886813832630274)
+- [#MoniRecomienda 'KonMari para la búsqueda de empleo Tech'](https://twitter.com/MoniMonipeny/status/1453249593286795264)
 
 
 
